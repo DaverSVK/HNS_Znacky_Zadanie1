@@ -1,0 +1,1 @@
+# HNS_Znacky_Zadanie1
